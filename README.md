@@ -78,12 +78,5 @@ Most Blogi AI codes on this page are first-cycle only — renewals revert to the
 
 # Blogi-AI
 
-# Blogi-AI
-
-# Blogi-AI
-
-# Blogi-AI
-
-# Blogi-AI
 
 # Blogi-AI
